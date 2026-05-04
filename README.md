@@ -1,0 +1,1 @@
+# stete_od_nepogoda
